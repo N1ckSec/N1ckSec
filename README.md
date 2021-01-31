@@ -6,5 +6,5 @@ CEO on [2LStudios](https://twitter.com/2lstudios), [SlickLearn](https://twitter.
 
 🧮 Lover of Mathematics, ⚛️ Quantum Mechanics/Physics, 🌎 Astronomy, and 🧪 Chemistry.  
   
-![](https://komarev.com/ghpvc/?username=sammwyy&color=blueviolet)
+![](https://komarev.com/ghpvc/?username=n1cksec&color=blueviolet)
 
