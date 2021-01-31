@@ -4,7 +4,7 @@
 # Biography
 Working at [N1Source](https://discord.gg/mamFxscUR3), [HellCraft](https://discord.gg/T8bcxC8JWA) and [MxClub](https://discord.gg/tQfCdkKH4V)  
 
-🍹 Lover of OpenSource, ⛏️ Working at new things!, 🌍 Donator at LoveTrees!.  
+🍹 Lover of OpenSource, ⛏️ Working at new things! 
   
 ![](https://komarev.com/ghpvc/?username=n1cksec&color=blueviolet)
 
