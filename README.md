@@ -8,4 +8,3 @@ CEO on [2LStudios](https://twitter.com/2lstudios), [SlickLearn](https://twitter.
   
 ![](https://komarev.com/ghpvc/?username=sammwyy&color=blueviolet)
 
-**You can contact me via discord N1ck#0021**
